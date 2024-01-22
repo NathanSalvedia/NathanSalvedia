@@ -13,3 +13,56 @@ You can click the Preview link to take a look at your changes.
 
 
 
+
+
+
+I'm [Nathan L. Salvedia], a passionate learner and student just like you! 📚✨
+
+
+
+
+
+
+
+
+**About Me**
+
+
+
+ •🎓 Currently pursuing [Batchelor of Science Information Technology] at [St Peter's College Iligan City]
+
+
+ •🌐 Love exploring new technologies and coding projects
+
+
+
+**My Interest**
+
+  
+
+ •💻 Programming and Web Development
+
+
+
+**Skills**
+
+ • 🌐 Web Development: HTML, CSS, JavaScript, Bootstrap
+
+
+**Lets Connect**
+
+
+ •📫 Reach me via email
+
+ 
+ •📘 Connect with me on facebook
+
+Looking forward to connecting with fellow students and learning together! 🚀✨
+
+  
+
+
+  
+
+
+
