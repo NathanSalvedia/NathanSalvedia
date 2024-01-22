@@ -50,6 +50,19 @@ I'm [Nathan L. Salvedia], a passionate learner and student just like you! 📚�
 
 
 
+
+
+**Let's Connect**
+
+ •📫 Reach me via email:nathansalvedia.202101013@gmail.com
+ 
+ •📘 Connect with me on facebook:https://www.facebook.com/natsky.salvedia
+
+ 
+Looking forward to connecting with fellow students and learning together! 🚀✨
+
+
+
   
 
 
