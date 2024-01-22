@@ -49,15 +49,6 @@ I'm [Nathan L. Salvedia], a passionate learner and student just like you! 📚�
  • 🌐 Web Development: HTML, CSS, JavaScript, Bootstrap
 
 
-**Lets Connect**
-
-
- •📫 Reach me via email
-
- 
- •📘 Connect with me on facebook
-
-Looking forward to connecting with fellow students and learning together! 🚀✨
 
   
 
